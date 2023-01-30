@@ -1,1 +1,1 @@
-# komikmist0kengirmefelan
+discord # LoysNoys#1083
